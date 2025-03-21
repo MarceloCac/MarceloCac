@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... fazer programa
 - 💞️ I’m looking to collaborate on ... comer cimento
 - 📫 How to reach me ... só andar
-- 😄 Pronouns: ... ele/delas
+- 😄 Pronouns: ... mar/celo
 - ⚡ Fun fact: ... restaurante que serve farofa não tem ventilador.
 
 <!---
